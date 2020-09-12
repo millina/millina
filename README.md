@@ -1,4 +1,4 @@
-### I got the horses in the back 🐴 🎶
+### The #1 Hedgehog Fan in the whole world! 🦔 🌍
 
 <!--
 **millina/millina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
